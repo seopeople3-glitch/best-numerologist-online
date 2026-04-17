@@ -11,8 +11,8 @@ Digits N Destini is a trusted online numerology platform offering expert service
 - Tarot Reading  
 - Vastu Consultation  
 
-## Visit Website
+## Visit Our Website
 https://digitsndestini.com/
 
-## About
-Get accurate and personalized numerology consultation to align your life with success and positivity.
+Get expert numerology consultation:
+https://digitsndestini.com/
